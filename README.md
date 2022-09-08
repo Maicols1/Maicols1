@@ -1,5 +1,5 @@
 ### Hi there!!! 👋
-Hi
+Hi I am a psychology major at the University of Texas Austin. I am very excited to see what I will learn this semester!
 <!--
 **Maicols1/Maicols1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
